@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ... Programming
 - 💞️ I’m looking to collaborate on ... None
 - 📫 How to reach me ... https://www.instagram.com/wolfgang__wu0916/
-- 😄 Pronouns: ... None
+- 😄 Pronouns: ... He/Him
 - ⚡ Fun fact: ... None
 
 <!---
